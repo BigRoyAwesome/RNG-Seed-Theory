@@ -48,10 +48,3 @@ If you're shooting for 5/6/7 red star pulls and/or legendary drops for other orb
 RNG Seed Theory created by BigRoyAwesome https://www.youtube.com/user/BigRoyAwesome
 
 RNG Seed Theory Playlist - https://www.youtube.com/playlist?list=PLEbIIBLfonTmjmSlsry6q5Mt9y9nCi03R
-
-All RNG Seed Theory Videos In Order:
-50 Red Star Orb Opening And RNG Seed Theory - https://www.youtube.com/watch?v=8azPbUiEDdE
-Orb Opening Extravaganza! Testing RNG Seed Theory Further: Red Stars and More - https://www.youtube.com/watch?v=dNm1d418dL8
-7 Red Star Fury?! RNG Seed Theory Vindicated! - https://www.youtube.com/watch?v=8xeW51jYBIU
-Is RNG Seed Theory Legit? 35 Red Star Orbs And 85+ Other Orbs Opening! - https://www.youtube.com/watch?v=1hkiFYui6eU
-45 Red Star Orb Opening - Will RNG Seed Theory Work Again? - https://www.youtube.com/watch?v=QSczcdv5YKY
