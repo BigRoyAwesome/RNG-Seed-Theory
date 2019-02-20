@@ -8,8 +8,11 @@ Save up a stockpile of orbs, and then open a few to see if you get something goo
 **What the RNG Seed Theory is not:
 
 It doesn't guarantee that you will get an epic or legendary drop, or that you will get a certain character.
+
 You can't force a good seed, you can only keep changing it until you get a good one.
+
 You can't "improve" a seed.
+
 Even if you can change your seed with any of the methods theorized, that doesn't mean it will be a better one. It could be the same or even worse.
 
 
